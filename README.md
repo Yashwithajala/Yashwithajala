@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **22a91a05h7@aec.edu.in**
 
-- ⚡ Fun fact **I'm wierd**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
